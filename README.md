@@ -1,2 +1,2 @@
 # SISTEM-INFORMASI-PENJUALAN-DI-MINIMARKET-212
-JTD-3B-Agung-Firman-Shavira
+JTD-3B-Agung Dwi C.(02)-Firman Yudha P.(12)-Shavira Adianda O.(21)
